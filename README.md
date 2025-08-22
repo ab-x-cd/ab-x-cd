@@ -15,7 +15,7 @@
 
 - <a href=https://discordapp.com/users/556859863385505793 target="blank"> Discord </a>
 
-- <a href="https://x.com/__abxcd"> Twitter / X </a>
+- <a href="https://x.com/bliindwashere"> Twitter / X </a>
 
 - Instagram (soon)
 
